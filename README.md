@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAEM860926MMNRLR01
+VAEM860926MMNRLR01
